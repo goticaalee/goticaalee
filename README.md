@@ -2,7 +2,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Register - Login](https://github.com/user-attachments/assets/ee849228-9d3c-4e8f-a0df-697f38ea8200)
 ㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤׁ . °ㅤglad you're reading me! im always half-afk, but i accept c+h, if u seek my attention just w2i,ㅤ . °
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤׁ . °ㅤglad you're reading me! im always half-afk, but i accept c+h, if u seek my attention just w2i,ㅤ . °
 
 ㅤㅤㅤㅤㅤㅤ im always up to make new friends! just be aware of timezones and how busy i can be sometimes,
 
