@@ -10,7 +10,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤplease do not copy my ponies! i put efforts in making them,
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤim usually on the hoyoverse zone, as i enjoy genshin/hsr/ hi3rd!
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤim usually on the hoyoverse/arcane zone, as i enjoy genshin/hsr/hi3rd!
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  at first i might be shy and reserved, but if i get comfier ill go crazy/j
 
